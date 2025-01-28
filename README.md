@@ -47,4 +47,4 @@ Bu proje, **deneme bonusu**, **deneme bonusu veren siteler** ve **2025 yılı** 
 
 Bu sistemin bir demo versiyonunu görmek için aşağıdaki bağlantıyı ziyaret edebilirsiniz:
 
-[Deneme Bonusu Veren Siteler](https://www.elmadergisi.com)
+[Deneme Bonusu Veren Siteler](https://casinositeleri.rip)
